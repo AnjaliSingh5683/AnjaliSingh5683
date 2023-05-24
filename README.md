@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **2041019274.anjalisingh@gmail.com**
 
-- ⚡ Fun fact **Java & Javascript not same😂 **
+- ⚡ Fun fact **Java & Javascript not same😂**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
